@@ -1,3 +1,3 @@
-# https://blobby-boi.github.io/1v1lol/
+# https://Mathhelper.github.io/mathheper/
 ## 1v1.lol
-An alternative link to play 1v1.lol
+
